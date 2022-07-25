@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @y3nde
 - 👀 I’m interested in digital marketing and SEO
-- 🌱 I’m currently learning SEO and online amrketing strategies
+- 🌱 I’m currently learning SEO and online marketing strategies
 - 💞️ I’m looking to collaborate on online marketing campaigns
 - 📫 How to reach me y3nde@web.de
 
